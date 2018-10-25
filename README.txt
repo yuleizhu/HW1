@@ -1,2 +1,0 @@
-Yulei Zhu
-Red Sox
